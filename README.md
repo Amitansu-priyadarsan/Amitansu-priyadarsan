@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1q3ujzWFMgM0pUK93vXUH1Fjfp5-D6Oiz/view?usp=sharing](https://drive.google.com/file/d/1q3ujzWFMgM0pUK93vXUH1Fjfp5-D6Oiz/view?usp=sharing)
 
-- - 📄 Know about my experiences [https://drive.google.com/file/d/1q3ujzWFMgM0pUK93vXUH1Fjfp5-D6Oiz/view?usp=sharing](https://drive.google.com/file/d/1q3ujzWFMgM0pUK93vXUH1Fjfp5-D6Oiz/view?usp=sharing)
+  - My portfolio - [https://amitansuportfolio.netlify.app/])
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
